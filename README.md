@@ -1,1 +1,5 @@
 # Is-infertility-inherited-through-genetic-factors-in-men-or-women-
+
+Infertility can sometimes be inherited. Genetic abnormalities such as chromosomal disorders, Y-chromosome deletions in men, or conditions like PCOS and endometriosis in women may be passed down through families. These genetic factors can impact hormone levels, egg quality, sperm production, or reproductive organ function, all of which play vital roles in fertility. If infertility runs in your family, it’s wise to consider genetic counseling before trying to conceive. With today’s medical advancements, options like Preimplantation Genetic Testing (PGT) during IVF can help identify and avoid passing certain disorders to offspring. Trinity IVF Ahmedabad specializes in identifying hereditary fertility issues and offers supportive solutions. Knowing your genetic background empowers you to take proactive steps in your fertility journey.
+https://trinityivfahmedabad.com/genetic-factors-affecting-fertility-is-infertility-inherited/
+
